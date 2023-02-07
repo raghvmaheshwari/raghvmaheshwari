@@ -7,7 +7,6 @@
 
 - 📝 I regularly write articles on [https://hashnode.com/@raghvmaheshwari](https://hashnode.com/@raghvmaheshwari)
 
-- 📫 How to reach me **raghav.m021@gmail.com**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
